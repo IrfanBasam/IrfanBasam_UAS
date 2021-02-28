@@ -1,1 +1,0 @@
-# IrfanBasam_UAS
